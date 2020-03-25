@@ -1,1 +1,1 @@
-# ELTE_Financial_Risk_2020
+# Financial Risks 2019-2020/2 @ ELTE
